@@ -1,4 +1,4 @@
-[![boi](https://readme-typing-svg.demolab.com/?lines=sweet+dreams+.+.+.;good+night+.;am+i+dreaming+?;let+'+s+get+some+rest+.+.;nap+time+.+.+.;i+wish+it+wasn+'+t+so+noisy+.+.+.;my+nap+will+have+to+wait+.+.+.&font=Fuzzy+Bubbles&color=ACEEF7FF&duration=8500&random=true&center=true)](https://git.io/typing-svg)
+# [![boi](https://readme-typing-svg.demolab.com/?lines=sweet+dreams+.+.+.;good+night+.;am+i+dreaming+?;let+'+s+get+some+rest+.+.;nap+time+.+.+.;i+wish+it+wasn+'+t+so+noisy+.+.+.;my+nap+will+have+to+wait+.+.+.&size=25&font=Fuzzy+Bubbles&size60&color=ACEEF7FF&duration=8500&random=true&center=true)](https://git.io/typing-svg)
 
 <p align="center">
   <img height="525" width="535" src="https://cdn.discordapp.com/attachments/757933544734457951/1478187997856923728/Untitled991_20260302193113.png?ex=69a77d5a&is=69a62bda&hm=d3b0c17461591d335a1d1b04198da86195d46491454f2e35c0e9ee80455ff723"/>
@@ -38,7 +38,7 @@
   <img height="50" src="https://cdn.discordapp.com/attachments/757933544734457951/1478922920108753047/ppagelogo.png?ex=69aa29cd&is=69a8d84d&hm=e7d0daa701efa35bb89468dc967d259c867ace353e1f9efce51c380063794696"/>
 </a>
 <a href="https://astrozdreams.straw.page/">
-  <img height="50" src="https://cdn.discordapp.com/attachments/757933544734457951/1479607022197669998/Untitled989_20260306172955.png?ex=69aca6eb&is=69ab556b&hm=060ae2e8fb564a09c7698430c8a9946e28fd18eddc490cba336ff1ea3b7f668c"/>
+  <img height="50" src="https://cdn.discordapp.com/attachments/757933544734457951/1479607022197669998/Untitled989_20260306172955.png?ex=69b295ab&is=69b1442b&hm=c73004f52d535b7955bfab1bf423c541eaf6a94bd5dbc1b94aa6d8b5fc22394a"/>
 </a>
   
 ![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fastrozgalaxy&label=dreams%20%20given%20%20.%20.%20.&labelColor=%23263759&countColor=%23697689&style=plastic&labelStyle=lower)
