@@ -1,7 +1,7 @@
 # [![boi](https://readme-typing-svg.demolab.com/?lines=sweet+dreams+.+.+.;good+night+.;am+i+dreaming+?;let+'+s+get+some+rest+.+.;nap+time+.+.+.;i+wish+it+wasn+'+t+so+noisy+.+.+.;my+nap+will+have+to+wait+.+.+.&size=25&font=Fuzzy+Bubbles&size60&color=ACEEF7FF&duration=8500&random=true&center=true)](https://git.io/typing-svg)
 
 <p align="center">
-  <img height="525" width="535" src="https://cdn.discordapp.com/attachments/757933544734457951/1478187997856923728/Untitled991_20260302193113.png?ex=69a77d5a&is=69a62bda&hm=d3b0c17461591d335a1d1b04198da86195d46491454f2e35c0e9ee80455ff723"/>
+  <img height="525" width="535" src="https://cdn.discordapp.com/attachments/757933544734457951/1478187997856923728/Untitled991_20260302193113.png?ex=69b4039a&is=69b2b21a&hm=1114191568b2005fa7a1bd1677e48e6e019dea9d3fe997e926c81421f4b39cd9&"/>
 </a>
 
 <p align="center">
@@ -23,22 +23,22 @@
 
 <p align="center">
 <a href="https://www.roblox.com/users/3783538863/profile">
-  <img height="50" src="https://cdn.discordapp.com/attachments/757933544734457951/1478184392227553371/Untitled989_20260302191655.png?ex=69a779fe&is=69a6287e&hm=9751330e658eb59c80731f60d0180be60f828d569b9e11e8d959ed8d85dadf9b"/>
+  <img height="50" src="https://cdn.discordapp.com/attachments/757933544734457951/1478184392227553371/Untitled989_20260302191655.png?ex=69b4003e&is=69b2aebe&hm=0c7bd0573073d43b3ca54ef66abc7e4f6d8a24fcec625f6426bdd020ee45ce62&"/>
 </a>
 <a href="https://astrozgalaxy.atabook.org/">
-  <img height="50" src="https://cdn.discordapp.com/attachments/757933544734457951/1478183794925375620/Untitled989_20260302191417.png?ex=69a77970&is=69a627f0&hm=48614325d2493728dc333eb7cc6f5a7a4b2ce80c2dc2d4939d40b30e39144d38&">
+  <img height="50" src="https://cdn.discordapp.com/attachments/757933544734457951/1478183794925375620/Untitled989_20260302191417.png?ex=69b3ffb0&is=69b2ae30&hm=f4411ebb95d8737a22aba990d54d3f157f3f29b81368f58c608737a683f60db6&">
 </a>
   <a href="https://discordapp.com/users/658405957608407055">
-  <img height="50" src="https://cdn.discordapp.com/attachments/757933544734457951/1478183778437562464/Untitled989_20260302191410.png?ex=69a7796c&is=69a627ec&hm=9942867dfcaad9d844b3f400064b1a61ed36f8f0de849d40086cb3f1a1f106c8">
+  <img height="50" src="https://cdn.discordapp.com/attachments/757933544734457951/1478183778437562464/Untitled989_20260302191410.png?ex=69b3ffac&is=69b2ae2c&hm=de26e0e3b4b45863f62a3f913043019bb508f83f4c22261d1cd39abcd4d2bb27&">
 </a>
   <a href="https://rentry.co/astrozgalaxy">
-  <img height="50" src="https://cdn.discordapp.com/attachments/757933544734457951/1478183795118309436/Untitled989_20260302191424.png?ex=69a77970&is=69a627f0&hm=1926b3dfb5fa79a9630d9851532aa7a52de7175d5c0845edc78a5a537f744584&">
+  <img height="50" src="https://cdn.discordapp.com/attachments/757933544734457951/1478183795118309436/Untitled989_20260302191424.png?ex=69b3ffb0&is=69b2ae30&hm=1ec6082931b49fd2544f12002937e88623d63a50b1f4fdc71ffd6f6bd827bb9e&">
 </a>
 <a href="https://en.pronouns.page/@splatoonobsessed">
-  <img height="50" src="https://cdn.discordapp.com/attachments/757933544734457951/1478922920108753047/ppagelogo.png?ex=69aa29cd&is=69a8d84d&hm=e7d0daa701efa35bb89468dc967d259c867ace353e1f9efce51c380063794696"/>
+  <img height="50" src="https://cdn.discordapp.com/attachments/757933544734457951/1478922920108753047/ppagelogo.png?ex=69b40d0d&is=69b2bb8d&hm=db1ba532a9ee4b8d7829c5dacf4b475845fbe46376c968dd4ea615b4afc965d4&"/>
 </a>
 <a href="https://astrozdreams.straw.page/">
-  <img height="50" src="https://cdn.discordapp.com/attachments/757933544734457951/1479607022197669998/Untitled989_20260306172955.png?ex=69b295ab&is=69b1442b&hm=c73004f52d535b7955bfab1bf423c541eaf6a94bd5dbc1b94aa6d8b5fc22394a"/>
+  <img height="50" src="https://cdn.discordapp.com/attachments/757933544734457951/1479607022197669998/Untitled989_20260306172955.png?ex=69b3e72b&is=69b295ab&hm=2b1f61724bc9dea1fa4b73c1d912d1d7d321192d4fa08f42a983c490dfd8c414&"/>
 </a>
 <a href="https://guns.lol/astrozgalaxy">
   <img height="50" src="https://cdn.discordapp.com/attachments/757933544734457951/1481474581909995653/baby_bluye_gnslol.png?ex=69b37238&is=69b220b8&hm=4981a5c4ead1ece9ce8f1b7d26ea805dea58106bebd67700ccc0990a3aa0911d&"/>
