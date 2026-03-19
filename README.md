@@ -12,17 +12,15 @@
 </a>
 
 <p align="center">
-- hi ! call me aether / astro , my prns r listed on my acc ^__^~
+- i ' m astro ! ( aether res for close friends )
 <p align="center">
-- astro + elliot fictionkin / fictionflect
+- astro fictionkin / fictionflect , fictkin of many
 <p align="center">
 - dw , waapp , genshin , splatoon , danganronpa + more enthusiast
 <p align="center">
-- dni if under 15 !! ,, i ' m 17-19
-<p align="center">
 - iwcaution , uf ! i can be very rude unintentionally .
 <p align="center">
-- socials below , click the icons :o)
+- dni/byi list on strawp . updated whenever i can
 
 <p align="center">
 <a href="https://www.roblox.com/users/3783538863/profile">
