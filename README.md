@@ -38,7 +38,7 @@
 <a href="https://en.pronouns.page/@splatoonobsessed">
   <img height="50" src="https://cdn.discordapp.com/attachments/757933544734457951/1483796913311449159/better_baby_blue_prnspage.png?ex=69bbe50f&is=69ba938f&hm=1669868633a712c2cedb736442a5cebf559bed0ede2075257545e92201b3589d&"/>
 </a>
-<a href="https://astrozdreams.straw.page/">
+<a href="https://astrozdreamz.straw.page/">
   <img height="50" src="https://cdn.discordapp.com/attachments/757933544734457951/1483798341073506344/better_baby_blue_strawpg.png?ex=69bbe664&is=69ba94e4&hm=6bfc82acb290143e225100b744df319009db0bb469ee8b1228b73bb747d664b8"/>
 </a>
 <a href="https://guns.lol/astrozgalaxy">
