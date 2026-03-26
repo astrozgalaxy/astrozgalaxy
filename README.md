@@ -12,7 +12,7 @@
 </a>
 
 <p align="center">
-- i ' m astro ! ( aether res for close friends )
+- i ' m astro ! ( aether only for close friends )
 <p align="center">
 - astro fictionkin / fictionflect , fictkin of many
 <p align="center">
