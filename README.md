@@ -6,7 +6,7 @@ check [gunslol](https://guns.lol/astrozgalaxy) for other websites ^__^ -- note :
 art below made by me . kinsona is below ok . no inspo or copying pslpsls
   
 <p align="center">
-  <img height="545" width="435" src="https://cdn.discordapp.com/attachments/757933544734457951/1487524778918154461/astro_chibi_20260328145125.png?ex=69c974e8&is=69c82368&hm=4221c3a507c0b9829eaa54e78d36f9ad001f4df47b4c63fa7c680d99a5b10ac9&"/>
+  <img height="545" width="435" src="https://cdn.discordapp.com/attachments/757933544734457951/1487564688991453224/astro_chibi_20260328173051.png?ex=69c99a13&is=69c84893&hm=4446ca7b2287ca23d1017c6642d7ba0ada903164eddf260440f6701326459bb5&"/>
 </a>
 
 .<p align="center">
