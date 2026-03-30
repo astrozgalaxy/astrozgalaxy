@@ -1,4 +1,7 @@
- i go by astro ,, rmking github . [basic dni](https://rentry.co/dnfifreaks) or check [strawpage](https://astrozdreamz.straw.page/) for specifics . dncopy or inspomy ponies . you will be blocked indefinietly .
+ i go by astro ,, rmking github . [basic dni](https://rentry.co/dnfifreaks) or check [strawpage](https://astrozdreamz.straw.page/) for specifics .
+ 
+ <p align="center">
+ dncopy or inspo onmy ponies . you will be blocked indefinietly .
   
 
 check [gunslol](https://guns.lol/astrozgalaxy) for other websites ^__^ -- note : i have a typing quirk ok
