@@ -1,12 +1,13 @@
- i go by astro ,, rmking github . [basic dni](https://rentry.co/dnfifreaks) or check [strawpage](https://astrozdreamz.straw.page/) for specifics
+ i go by astro ,, rmking github . [basic dni](https://rentry.co/dnfifreaks) or check [strawpage](https://astrozdreamz.straw.page/) for specifics . dncopy or inspomy ponies . you will be blocked indefinietly .
   
 
-check [gunslol](https://guns.lol/astrozgalaxy) for other websites ^__^ -- note : i have typing quirk ok
+check [gunslol](https://guns.lol/astrozgalaxy) for other websites ^__^ -- note : i have a typing quirk ok
 
+<p align="center">
 art below made by me . kinsona is below ok . no inspo or copying pslpsls
   
 <p align="center">
-  <img height="545" width="435" src="https://cdn.discordapp.com/attachments/757933544734457951/1487564688991453224/astro_chibi_20260328173051.png?ex=69c99a13&is=69c84893&hm=4446ca7b2287ca23d1017c6642d7ba0ada903164eddf260440f6701326459bb5&"/>
+  <img height="545" width="425" src="https://cdn.discordapp.com/attachments/757933544734457951/1487564688991453224/astro_chibi_20260328173051.png?ex=69c99a13&is=69c84893&hm=4446ca7b2287ca23d1017c6642d7ba0ada903164eddf260440f6701326459bb5&"/>
 </a>
 
 .<p align="center">
