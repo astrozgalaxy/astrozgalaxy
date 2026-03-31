@@ -50,7 +50,7 @@
   $${\color{#58539C} you \color{#716cb4} will \color{#8884bd} be \color{#9996c6} blocked \color{#a4a1cd} indefinietly .}$$
 
 <p align="center">
- $${\color{#58539C} socials \color{#716cb4} + \color{#8884bd} my \color{#9996c6} art \color{#a4a1cd} below ! ( click the icons )}$$
+ $${\color{#58539C} socials \color{#716cb4} below !}$$
 
  <p align="center">
    <a href="https://astrozdreamz.straw.page/">
@@ -62,10 +62,7 @@
    <a href="https://astrozgalaxy.atabook.org/">
  <img height="75" width="75" src="https://media.discordapp.net/attachments/757933544734457951/1488380036678549695/purple_atabook.png?ex=69cc916d&is=69cb3fed&hm=938c3dcbd86a3d23108c4874fb2f5fa911c660c2c1ab713ca48f1eec77bc0102&=&format=webp&quality=lossless"/>
 </a>
-  
-<p align="center">
-  <img height="545" width="425" src="https://camo.githubusercontent.com/fbae42b07647aeb3385a158230b8c1b768eca978e03d819a264b5a9152458cf0/68747470733a2f2f63646e2e646973636f72646170702e636f6d2f6174746163686d656e74732f3735373933333534343733343435373935312f313438373536343638383939313435333232342f617374726f5f63686962695f32303236303332383137333035312e706e673f65783d36396339396131332669733d363963383438393326686d3d3434343663613762323238376361323364313031376336363432643762613061646139303331363465646466323630343430663637303133323634353962623526"/>
-</a>
 
+  
 .<p align="center">
 ![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fastrozgalaxy&label=dreams%20%20given%20%20.%20.%20.&labelColor=%23263759&countColor=%23697689&style=plastic&labelStyle=lower)
