@@ -6,25 +6,25 @@
 </a>
 
  <p align="center">
-<img height="30" width="35" src="https://media.discordapp.net/attachments/757933544734457951/1488374197398016020/chibi_atro.png?ex=69cc8bfd&is=69cb3a7d&hm=a66482cf2a6d8e10ae1a148f673bb37280f4ec90dccdc586cc9ca1f500d45911&=&format=webp&quality=lossless"> ;  $${\color{#58539C} do \color{#716cb4} you \color{#8884bd} know \color{#9996c6} what \color{#a4a1cd} he \color{#b4b1d5} said \color{#c6c4dd} to \color{#d5d4e6} me ? !}$$
+<img height="30" width="35" src="https://media.discordapp.net/attachments/757933544734457951/1488374197398016020/chibi_atro.png?ex=69cc8bfd&is=69cb3a7d&hm=a66482cf2a6d8e10ae1a148f673bb37280f4ec90dccdc586cc9ca1f500d45911&=&format=webp&quality=lossless"> ;  $${\color{#58539C} do \space\color{#716cb4} you \space\color{#8884bd} know \space\color{#9996c6} what \space\color{#a4a1cd} he \space\color{#b4b1d5} said \space\color{#c6c4dd} to \space\color{#d5d4e6} me ? !}$$
   
  <p align="center">
 <img height="30" width="35" src="https://media.discordapp.net/attachments/757933544734457951/1488374192972763176/chibi_spro.png?ex=69cc8bfc&is=69cb3a7c&hm=b1f4d784b18272e9277a808e51348be161aea56b3640b5ed3681003441683c54&=&format=webp&quality=lossless"> ; $${\color{#a91a1a} what ? }$$
 
  <p align="center">
-<img height="30" width="35" src="https://media.discordapp.net/attachments/757933544734457951/1488374197398016020/chibi_atro.png?ex=69cc8bfd&is=69cb3a7d&hm=a66482cf2a6d8e10ae1a148f673bb37280f4ec90dccdc586cc9ca1f500d45911&=&format=webp&quality=lossless"> ; $${\color{#58539C} he \color{#716cb4} was \color{#8884bd} like . .}$$
+<img height="30" width="35" src="https://media.discordapp.net/attachments/757933544734457951/1488374197398016020/chibi_atro.png?ex=69cc8bfd&is=69cb3a7d&hm=a66482cf2a6d8e10ae1a148f673bb37280f4ec90dccdc586cc9ca1f500d45911&=&format=webp&quality=lossless"> ; $${\space\color{#58539C} he \space\color{#716cb4} was \space\color{#8884bd} like . .}$$
 
  <p align="center">
- <img height="30" width="35" src="https://media.discordapp.net/attachments/757933544734457951/1488374197398016020/chibi_atro.png?ex=69cc8bfd&is=69cb3a7d&hm=a66482cf2a6d8e10ae1a148f673bb37280f4ec90dccdc586cc9ca1f500d45911&=&format=webp&quality=lossless"> ; $${\color{#58539C} " you ' re \color{#716cb4} sooooo \color{#8884bd} rude ! "}$$
+ <img height="30" width="35" src="https://media.discordapp.net/attachments/757933544734457951/1488374197398016020/chibi_atro.png?ex=69cc8bfd&is=69cb3a7d&hm=a66482cf2a6d8e10ae1a148f673bb37280f4ec90dccdc586cc9ca1f500d45911&=&format=webp&quality=lossless"> ; $${\space\color{#58539C} " you ' re \space\color{#716cb4} sooooo \space\color{#8884bd} rude ! "}$$
 
  <p align="center">
- <img height="30" width="35" src="https://media.discordapp.net/attachments/757933544734457951/1488374197398016020/chibi_atro.png?ex=69cc8bfd&is=69cb3a7d&hm=a66482cf2a6d8e10ae1a148f673bb37280f4ec90dccdc586cc9ca1f500d45911&=&format=webp&quality=lossless"> ; $${\color{#58539C} and \color{#716cb4} i \color{#8884bd} was \color{#9996c6} like . .}$$
+ <img height="30" width="35" src="https://media.discordapp.net/attachments/757933544734457951/1488374197398016020/chibi_atro.png?ex=69cc8bfd&is=69cb3a7d&hm=a66482cf2a6d8e10ae1a148f673bb37280f4ec90dccdc586cc9ca1f500d45911&=&format=webp&quality=lossless"> ; $${\space\color{#58539C} and \space\color{#716cb4} i \space\color{#8884bd} was \space\color{#9996c6} like . .}$$
 
  <p align="center">
-<img height="30" width="35" src="https://media.discordapp.net/attachments/757933544734457951/1488374197398016020/chibi_atro.png?ex=69cc8bfd&is=69cb3a7d&hm=a66482cf2a6d8e10ae1a148f673bb37280f4ec90dccdc586cc9ca1f500d45911&=&format=webp&quality=lossless"> ; $${\color{#58539C} " boy , \color{#716cb4} does \color{#8884bd} it \color{#9996c6} look \color{#a4a1cd} like \color{#b4b1d5} i \color{#c6c4dd} could \color{#d5d4e6} care ? "}$$
+<img height="30" width="35" src="https://media.discordapp.net/attachments/757933544734457951/1488374197398016020/chibi_atro.png?ex=69cc8bfd&is=69cb3a7d&hm=a66482cf2a6d8e10ae1a148f673bb37280f4ec90dccdc586cc9ca1f500d45911&=&format=webp&quality=lossless"> ; $${\color{#58539C} " boy , \space\color{#716cb4} does \space\color{#8884bd} it \space\color{#9996c6} look \space\color{#a4a1cd} like \space\color{#b4b1d5} i \space\color{#c6c4dd} could \space\color{#d5d4e6} care ? "}$$
 
  <p align="center">
-<img height="30" width="35" src="https://media.discordapp.net/attachments/757933544734457951/1488374197398016020/chibi_atro.png?ex=69cc8bfd&is=69cb3a7d&hm=a66482cf2a6d8e10ae1a148f673bb37280f4ec90dccdc586cc9ca1f500d45911&=&format=webp&quality=lossless"> ; $${\color{#58539C} " i \color{#716cb4} couldn ' t \color{#8884bd} even \color{#9996c6} care . . \color{#a4a1cd} less ! "}$$
+<img height="30" width="35" src="https://media.discordapp.net/attachments/757933544734457951/1488374197398016020/chibi_atro.png?ex=69cc8bfd&is=69cb3a7d&hm=a66482cf2a6d8e10ae1a148f673bb37280f4ec90dccdc586cc9ca1f500d45911&=&format=webp&quality=lossless"> ; $${\space\color{#58539C} " i \space\color{#716cb4} couldn ' t \space\color{#8884bd} even \space\color{#9996c6} care . . \space\color{#a4a1cd} less ! "}$$
 
  <p align="center">
 <img height="200" width="150" src="https://64.media.tumblr.com/db2d1e42f14a3f53db3e9a6680ab884a/3a61514a462c543f-76/s250x250_c1/b2b86f580438819013f50b595fa4cd058dfde212.pnj">
@@ -42,15 +42,15 @@
 </a>
 
 <p align="center">
- $${\color{#58539C} call \color{#716cb4} me \color{#8884bd} astro}$$
+ $${\space\color{#58539C} call \space\color{#716cb4} me \space\color{#8884bd} astro}$$
 
  
  <p align="center">
-  $${\color{#58539C} dncopy \color{#716cb4} or \color{#8884bd} take \color{#9996c6} inspo \color{#a4a1cd} from \color{#b4b1d5} my \color{#c6c4dd} ponies .}$$
-  $${\color{#58539C} you \color{#716cb4} will \color{#8884bd} be \color{#9996c6} blocked \color{#a4a1cd} indefinietly .}$$
+  $${\space\color{#58539C} dncopy \space\color{#716cb4} or \space\color{#8884bd} take \space\color{#9996c6} inspo \space\color{#a4a1cd} from \space\color{#b4b1d5} my \space\color{#c6c4dd} ponies .}$$
+  $${\space\color{#58539C} you \space\color{#716cb4} will \space\color{#8884bd} be \space\color{#9996c6} blocked \space\color{#a4a1cd} indefinietly .}$$
 
 <p align="center">
- $${\color{#58539C} socials \color{#716cb4} below !}$$
+ $${\space\color{#58539C} socials \space\color{#716cb4} below !}$$
 
  <p align="center">
    <a href="https://astrozdreamz.straw.page/">
