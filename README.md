@@ -6,25 +6,21 @@
 </a>
 
  <p align="center">
-<img height="30" width="35" src="https://media.discordapp.net/attachments/757933544734457951/1488374197398016020/chibi_atro.png?ex=69cc8bfd&is=69cb3a7d&hm=a66482cf2a6d8e10ae1a148f673bb37280f4ec90dccdc586cc9ca1f500d45911&=&format=webp&quality=lossless"> ;  $${\color{#58539C} do \space\color{#716cb4} you \space\color{#8884bd} know \space\color{#9996c6} what \space\color{#a4a1cd} he \space\color{#b4b1d5} said \space\color{#c6c4dd} to \space\color{#d5d4e6} me ? !}$$
+<img height="30" width="35" src="https://media.discordapp.net/attachments/757933544734457951/1488374197398016020/chibi_atro.png?ex=69cc8bfd&is=69cb3a7d&hm=a66482cf2a6d8e10ae1a148f673bb37280f4ec90dccdc586cc9ca1f500d45911&=&format=webp&quality=lossless"> ;  $${\color{#58539C} it ' s \space\color{#716cb4} okay \space\color{#8884bd} to \space\color{#9996c6} just \space\color{#a4a1cd} admit \space\color{#b4b1d5} that \space\color{#c6c4dd} you ' re \space\color{#d5d4e6} jealous \space\color{#dcdbee} of \space\color{#edecf7} me }$$
   
  <p align="center">
-<img height="30" width="35" src="https://media.discordapp.net/attachments/757933544734457951/1488374192972763176/chibi_spro.png?ex=69cc8bfc&is=69cb3a7c&hm=b1f4d784b18272e9277a808e51348be161aea56b3640b5ed3681003441683c54&=&format=webp&quality=lossless"> ; $${\color{#a91a1a} what ? }$$
+<img height="30" width="35" src="https://media.discordapp.net/attachments/757933544734457951/1488374197398016020/chibi_atro.png?ex=69cc8bfd&is=69cb3a7d&hm=a66482cf2a6d8e10ae1a148f673bb37280f4ec90dccdc586cc9ca1f500d45911&=&format=webp&quality=lossless"> ;  $${\color{#58539C} yeah , \space\color{#716cb4} i \space\color{#8884bd} heard \space\color{#9996c6} you \space\color{#a4a1cd} talk \space\color{#b4b1d5} about \space\color{#c6c4dd} me ,}$$
 
  <p align="center">
-<img height="30" width="35" src="https://media.discordapp.net/attachments/757933544734457951/1488374197398016020/chibi_atro.png?ex=69cc8bfd&is=69cb3a7d&hm=a66482cf2a6d8e10ae1a148f673bb37280f4ec90dccdc586cc9ca1f500d45911&=&format=webp&quality=lossless"> ; $${\space\color{#58539C} he \space\color{#716cb4} was \space\color{#8884bd} like . .}$$
+<img height="30" width="35" src="https://media.discordapp.net/attachments/757933544734457951/1488374197398016020/chibi_atro.png?ex=69cc8bfd&is=69cb3a7d&hm=a66482cf2a6d8e10ae1a148f673bb37280f4ec90dccdc586cc9ca1f500d45911&=&format=webp&quality=lossless"> ;  $${\color{#58539C} that ' s \space\color{#716cb4} the \space\color{#8884bd} word \space\color{#9996c6} on \space\color{#a4a1cd} the \space\color{#b4b1d5} street .}$$
+
+<p align="center">
+<img height="30" width="35" src="https://media.discordapp.net/attachments/757933544734457951/1488374197398016020/chibi_atro.png?ex=69cc8bfd&is=69cb3a7d&hm=a66482cf2a6d8e10ae1a148f673bb37280f4ec90dccdc586cc9ca1f500d45911&=&format=webp&quality=lossless"> ;  $${\color{#58539C} you ' re \space\color{#716cb4} obsessing , \space\color{#8884bd} just \space\color{#9996c6} confess \space\color{#a4a1cd} it , \space\color{#b4b1d5} put \space\color{#c6c4dd} your \space\color{#d5d4e6} hands \space\color{#dcdbee} up !}$$
 
  <p align="center">
- <img height="30" width="35" src="https://media.discordapp.net/attachments/757933544734457951/1488374197398016020/chibi_atro.png?ex=69cc8bfd&is=69cb3a7d&hm=a66482cf2a6d8e10ae1a148f673bb37280f4ec90dccdc586cc9ca1f500d45911&=&format=webp&quality=lossless"> ; $${\space\color{#58539C} " you ' re \space\color{#716cb4} sooooo \space\color{#8884bd} rude ! "}$$
-
+<img height="30" width="35" src="https://media.discordapp.net/attachments/757933544734457951/1488374197398016020/chibi_atro.png?ex=69cc8bfd&is=69cb3a7d&hm=a66482cf2a6d8e10ae1a148f673bb37280f4ec90dccdc586cc9ca1f500d45911&=&format=webp&quality=lossless"> ;  $${\color{#58539C} it ' s \space\color{#716cb4} obvious ,}$$
  <p align="center">
- <img height="30" width="35" src="https://media.discordapp.net/attachments/757933544734457951/1488374197398016020/chibi_atro.png?ex=69cc8bfd&is=69cb3a7d&hm=a66482cf2a6d8e10ae1a148f673bb37280f4ec90dccdc586cc9ca1f500d45911&=&format=webp&quality=lossless"> ; $${\space\color{#58539C} and \space\color{#716cb4} i \space\color{#8884bd} was \space\color{#9996c6} like . .}$$
-
- <p align="center">
-<img height="30" width="35" src="https://media.discordapp.net/attachments/757933544734457951/1488374197398016020/chibi_atro.png?ex=69cc8bfd&is=69cb3a7d&hm=a66482cf2a6d8e10ae1a148f673bb37280f4ec90dccdc586cc9ca1f500d45911&=&format=webp&quality=lossless"> ; $${\color{#58539C} " boy , \space\color{#716cb4} does \space\color{#8884bd} it \space\color{#9996c6} look \space\color{#a4a1cd} like \space\color{#b4b1d5} i \space\color{#c6c4dd} could \space\color{#d5d4e6} care ? "}$$
-
- <p align="center">
-<img height="30" width="35" src="https://media.discordapp.net/attachments/757933544734457951/1488374197398016020/chibi_atro.png?ex=69cc8bfd&is=69cb3a7d&hm=a66482cf2a6d8e10ae1a148f673bb37280f4ec90dccdc586cc9ca1f500d45911&=&format=webp&quality=lossless"> ; $${\space\color{#58539C} " i \space\color{#716cb4} couldn ' t \space\color{#8884bd} even \space\color{#9996c6} care . . \space\color{#a4a1cd} less ! "}$$
+<img height="30" width="35" src="https://media.discordapp.net/attachments/757933544734457951/1488374197398016020/chibi_atro.png?ex=69cc8bfd&is=69cb3a7d&hm=a66482cf2a6d8e10ae1a148f673bb37280f4ec90dccdc586cc9ca1f500d45911&=&format=webp&quality=lossless"> ;  $${\color{#58539C} i ' m \space\color{#716cb4} your \space\color{#8884bd} number \space\color{#9996c6} one .}$$
 
  <p align="center">
 <img height="200" width="150" src="https://64.media.tumblr.com/db2d1e42f14a3f53db3e9a6680ab884a/3a61514a462c543f-76/s250x250_c1/b2b86f580438819013f50b595fa4cd058dfde212.pnj">
@@ -41,8 +37,11 @@
  <img height="400" width="450" src="https://64.media.tumblr.com/968707b35e3d63c8d4aa73c9b331176d/7b055c9448320327-21/s540x810/73c1aaacc162a10e01fb1128a0da272dd24d909d.pnj"/>
 </a>
 
-<p align="center">
- $${\space\color{#58539C} call \space\color{#716cb4} me \space\color{#8884bd} astro}$$
+ <p align="center">
+  $${\color{#58539C} i ' m  \space\color{#716cb4} astro . \space\color{#8884bd} i \space\color{#9996c6} use \space\color{#a4a1cd} he \space\ / \space\color{#b4b1d5} it \space\ / \space\color{#c6c4dd} hymn \space\color{#d5d4e6} pronouns .}$$
+   <p align="center">
+ $${\color{#58539C} i \space\color{#716cb4} am \space\color{#8884bd} a \space\color{#9996c6} fictionkin \space\color{#a4a1cd} and \space\color{#b4b1d5} fictionflect \space\color{#c6c4dd} of \space\color{#d5d4e6} astro \space\color{#dcdbee} and \space\color{#edecf7} others . }$$
+ $${\color{#58539C} view \space\color{#716cb4} my \space\color{#8884bd} strawp \space\color{#9996c6} to \space\color{#a4a1cd} learn \space\color{#b4b1d5} more !}$$
 
  
  <p align="center">
