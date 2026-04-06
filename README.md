@@ -61,7 +61,8 @@
    <a href="https://astrozgalaxy.atabook.org/">
  <img height="75" width="75" src="https://media.discordapp.net/attachments/757933544734457951/1488380036678549695/purple_atabook.png?ex=69cc916d&is=69cb3fed&hm=938c3dcbd86a3d23108c4874fb2f5fa911c660c2c1ab713ca48f1eec77bc0102&=&format=webp&quality=lossless"/>
 </a>
-
+  <p align="center">
+ $${\color{#58539C} strawp , \space\color{#716cb4} gunslol, \space\color{#8884bd} and \space\color{#9996c6} ata \space\color{#a4a1cd} above ! \space\color{#b4b1d5} ( click the icons )}$$
   
 .<p align="center">
 ![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fastrozgalaxy&label=dreams%20%20given%20%20.%20.%20.&labelColor=%23263759&countColor=%23697689&style=plastic&labelStyle=lower)
