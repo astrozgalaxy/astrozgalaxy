@@ -47,10 +47,12 @@
  <p align="center">
   $${\space\color{#58539C} dncopy \space\color{#716cb4} or \space\color{#8884bd} take \space\color{#9996c6} inspo \space\color{#a4a1cd} from \space\color{#b4b1d5} my \space\color{#c6c4dd} ponies .}$$
   $${\space\color{#58539C} you \space\color{#716cb4} will \space\color{#8884bd} be \space\color{#9996c6} blocked \space\color{#a4a1cd} indefinietly .}$$
-  
+
   <p align="center">
-  $${\space\color{#58539C} follow \space\color{#716cb4} my \space\color{#8884bd} love \space\color{#9996c6} <3}$$ , , <a href="https://github.com/GraveyardOfStars">
- <img height="50" width="50" src="https://cdn.discordapp.com/attachments/757933544734457951/1491134190660620389/pfp_stuff_20260407135442.png?ex=69d6966e&is=69d544ee&hm=e43cf6c77a077856534aff940670a191abbaf65bb13b38d1ac81d5c32ad36d1a&"/>
+  $${\space\color{#58539C} follow \space\color{#716cb4} my \space\color{#8884bd} love \space\color{#9996c6} <3}$$
+    <p align="center">
+    <a href="https://github.com/GraveyardOfStars">
+ <img height="85" width="85" src="https://cdn.discordapp.com/attachments/757933544734457951/1491134190660620389/pfp_stuff_20260407135442.png?ex=69d6966e&is=69d544ee&hm=e43cf6c77a077856534aff940670a191abbaf65bb13b38d1ac81d5c32ad36d1a&"/>
 </a>
 
 <p align="center">
