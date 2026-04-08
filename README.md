@@ -1,26 +1,27 @@
 <p align="center">
- <img height="500" width="500" src="https://cdn.discordapp.com/attachments/757933544734457951/1488353469017489580/moonberry_github_thing.png?ex=69cc78af&is=69cb272f&hm=bbba7c4d82333553750028c524a39d21d4ad11b1bdb72ecc5cc1bb1114d24756&"/>
+ <img height="500" width="500" src="https://media.discordapp.net/attachments/757933544734457951/1491478228739555470/Untitled1018_20260408124151.png?ex=69d7d6d8&is=69d68558&hm=a322ceee1b8ed044d309cd85bb515180bb672428eca4bf06172205cfed2a91ed&=&format=webp&quality=lossless"/>
 </a>
  <p align="center">
  <img height="400" width="450" src="https://64.media.tumblr.com/968707b35e3d63c8d4aa73c9b331176d/7b055c9448320327-21/s540x810/73c1aaacc162a10e01fb1128a0da272dd24d909d.pnj"/>
 </a>
 
  <p align="center">
-<img height="30" width="35" src="https://media.discordapp.net/attachments/757933544734457951/1488374197398016020/chibi_atro.png?ex=69cc8bfd&is=69cb3a7d&hm=a66482cf2a6d8e10ae1a148f673bb37280f4ec90dccdc586cc9ca1f500d45911&=&format=webp&quality=lossless"> ;  $${\color{#58539C} it ' s \space\color{#716cb4} okay \space\color{#8884bd} to \space\color{#9996c6} just \space\color{#a4a1cd} admit \space\color{#b4b1d5} that \space\color{#c6c4dd} you ' re \space\color{#d5d4e6} jealous \space\color{#dcdbee} of \space\color{#edecf7} me }$$
+<img height="30" width="35" src="https://media.discordapp.net/attachments/757933544734457951/1488374197398016020/chibi_atro.png?ex=69cc8bfd&is=69cb3a7d&hm=a66482cf2a6d8e10ae1a148f673bb37280f4ec90dccdc586cc9ca1f500d45911&=&format=webp&quality=lossless"> ;  $${\color{#58539C} tell \space\color{#716cb4} me \space\color{#8884bd} , \space\color{#9996c6} who \space\color{#a4a1cd} i \space\color{#b4b1d5} am }$$
   
  <p align="center">
-<img height="30" width="35" src="https://media.discordapp.net/attachments/757933544734457951/1488374197398016020/chibi_atro.png?ex=69cc8bfd&is=69cb3a7d&hm=a66482cf2a6d8e10ae1a148f673bb37280f4ec90dccdc586cc9ca1f500d45911&=&format=webp&quality=lossless"> ;  $${\color{#58539C} yeah , \space\color{#716cb4} i \space\color{#8884bd} heard \space\color{#9996c6} you \space\color{#a4a1cd} talk \space\color{#b4b1d5} about \space\color{#c6c4dd} me ,}$$
+<img height="30" width="35" src="https://media.discordapp.net/attachments/757933544734457951/1488374197398016020/chibi_atro.png?ex=69cc8bfd&is=69cb3a7d&hm=a66482cf2a6d8e10ae1a148f673bb37280f4ec90dccdc586cc9ca1f500d45911&=&format=webp&quality=lossless"> ;  $${\color{#58539C} do \space\color{#716cb4} i \space\color{#8884bd} provoke \space\color{#9996c6} you \space\color{#a4a1cd} with \space\color{#b4b1d5} my \space\color{#c6c4dd} tone \space\color{#d5d4e6} of \space\color{#dcdbee} innocence \space\color{#ebeafc} ? }$$
 
  <p align="center">
-<img height="30" width="35" src="https://media.discordapp.net/attachments/757933544734457951/1488374197398016020/chibi_atro.png?ex=69cc8bfd&is=69cb3a7d&hm=a66482cf2a6d8e10ae1a148f673bb37280f4ec90dccdc586cc9ca1f500d45911&=&format=webp&quality=lossless"> ;  $${\color{#58539C} that ' s \space\color{#716cb4} the \space\color{#8884bd} word \space\color{#9996c6} on \space\color{#a4a1cd} the \space\color{#b4b1d5} street .}$$
+<img height="30" width="35" src="https://media.discordapp.net/attachments/757933544734457951/1488374197398016020/chibi_atro.png?ex=69cc8bfd&is=69cb3a7d&hm=a66482cf2a6d8e10ae1a148f673bb37280f4ec90dccdc586cc9ca1f500d45911&=&format=webp&quality=lossless"> ;  $${\color{#58539C} don \space\color{#716cb4} ' \space\color{#8884bd} t \space\color{#9996c6} ask \space\color{#a4a1cd} too \space\color{#b4b1d5} many \space\color{#c6c4dd} questions \space\color{#d5d4e6} , }$$
 
 <p align="center">
-<img height="30" width="35" src="https://media.discordapp.net/attachments/757933544734457951/1488374197398016020/chibi_atro.png?ex=69cc8bfd&is=69cb3a7d&hm=a66482cf2a6d8e10ae1a148f673bb37280f4ec90dccdc586cc9ca1f500d45911&=&format=webp&quality=lossless"> ;  $${\color{#58539C} you ' re \space\color{#716cb4} obsessing , \space\color{#8884bd} just \space\color{#9996c6} confess \space\color{#a4a1cd} it , \space\color{#b4b1d5} put \space\color{#c6c4dd} your \space\color{#d5d4e6} hands \space\color{#dcdbee} up !}$$
+<img height="30" width="35" src="https://media.discordapp.net/attachments/757933544734457951/1488374197398016020/chibi_atro.png?ex=69cc8bfd&is=69cb3a7d&hm=a66482cf2a6d8e10ae1a148f673bb37280f4ec90dccdc586cc9ca1f500d45911&=&format=webp&quality=lossless"> ;  $${\color{#58539C} that \space\color{#716cb4} is \space\color{#8884bd} my \space\color{#9996c6} one \space\color{#a4a1cd} suggestion \space\color{#b4b1d5} .}$$
 
  <p align="center">
-<img height="30" width="35" src="https://media.discordapp.net/attachments/757933544734457951/1488374197398016020/chibi_atro.png?ex=69cc8bfd&is=69cb3a7d&hm=a66482cf2a6d8e10ae1a148f673bb37280f4ec90dccdc586cc9ca1f500d45911&=&format=webp&quality=lossless"> ;  $${\color{#58539C} it ' s \space\color{#716cb4} obvious ,}$$
+<img height="30" width="35" src="https://media.discordapp.net/attachments/757933544734457951/1488374197398016020/chibi_atro.png?ex=69cc8bfd&is=69cb3a7d&hm=a66482cf2a6d8e10ae1a148f673bb37280f4ec90dccdc586cc9ca1f500d45911&=&format=webp&quality=lossless"> ;  $${\color{#58539C} you \space\color{#716cb4} know \space\color{#8884bd} i \space\color{#9996c6} keep \space\color{#a4a1cd} it \space\color{#b4b1d5} real \space\color{#c6c4dd} ;}$$
+  
  <p align="center">
-<img height="30" width="35" src="https://media.discordapp.net/attachments/757933544734457951/1488374197398016020/chibi_atro.png?ex=69cc8bfd&is=69cb3a7d&hm=a66482cf2a6d8e10ae1a148f673bb37280f4ec90dccdc586cc9ca1f500d45911&=&format=webp&quality=lossless"> ;  $${\color{#58539C} i ' m \space\color{#716cb4} your \space\color{#8884bd} number \space\color{#9996c6} one .}$$
+<img height="30" width="35" src="https://media.discordapp.net/attachments/757933544734457951/1488374197398016020/chibi_atro.png?ex=69cc8bfd&is=69cb3a7d&hm=a66482cf2a6d8e10ae1a148f673bb37280f4ec90dccdc586cc9ca1f500d45911&=&format=webp&quality=lossless"> ;  $${\color{#58539C} i \space\color{#716cb4} live \space\color{#8884bd} for \space\color{#9996c6} the \space\color{#a4a1cd} appeal \space\color{#b4b1d5} ꨄ︎ }$$
 
  <p align="center">
 <img height="200" width="150" src="https://64.media.tumblr.com/db2d1e42f14a3f53db3e9a6680ab884a/3a61514a462c543f-76/s250x250_c1/b2b86f580438819013f50b595fa4cd058dfde212.pnj">
