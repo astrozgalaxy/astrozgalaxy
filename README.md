@@ -1,8 +1,8 @@
 <p align="center">
- <img height="500" width="520" src="https://media.discordapp.net/attachments/757933544734457951/1491536512527892721/Untitled1018_20260408163327.png?ex=69d80d1f&is=69d6bb9f&hm=a59fae39efbfa018a4d9577858b6cacc287774f70276dc97f9e75dc9ba89ffd4&=&format=webp&quality=lossless&width=509&height=350"/>
+ <img height="370" width="530" src="https://media.discordapp.net/attachments/757933544734457951/1491536512527892721/Untitled1018_20260408163327.png?ex=69d80d1f&is=69d6bb9f&hm=a59fae39efbfa018a4d9577858b6cacc287774f70276dc97f9e75dc9ba89ffd4&=&format=webp&quality=lossless&width=509&height=350"/>
 </a>
  <p align="center">
- <img height="400" width="450" src="https://64.media.tumblr.com/968707b35e3d63c8d4aa73c9b331176d/7b055c9448320327-21/s540x810/73c1aaacc162a10e01fb1128a0da272dd24d909d.pnj"/>
+ <img height="175" width="425" src="https://64.media.tumblr.com/968707b35e3d63c8d4aa73c9b331176d/7b055c9448320327-21/s540x810/73c1aaacc162a10e01fb1128a0da272dd24d909d.pnj"/>
 </a>
 
  <p align="center">
@@ -32,10 +32,10 @@
   <img height="200" width="150" src="https://64.media.tumblr.com/7cbd5cbda04f05e3459cbc04ee0a5204/6a013847a16bf59c-33/s540x810/e7c858680ee7b88e15835950b4387d845fcb769b.gifv">
   
   <p align="center">
- <img height="400" width="450" src="https://media.discordapp.net/attachments/757933544734457951/1488375733502873661/divida_thing_upside_down.png?ex=69cc8d6b&is=69cb3beb&hm=a4f6d7a2b2b83c545b53805b3583780b7f3a88f58dff0117aecfb50c00d3c41d&=&format=webp&quality=lossless"/>
+ <img height="175" width="425" src="https://media.discordapp.net/attachments/757933544734457951/1488375733502873661/divida_thing_upside_down.png?ex=69cc8d6b&is=69cb3beb&hm=a4f6d7a2b2b83c545b53805b3583780b7f3a88f58dff0117aecfb50c00d3c41d&=&format=webp&quality=lossless"/>
 </a>
  <p align="center">
- <img height="400" width="450" src="https://64.media.tumblr.com/968707b35e3d63c8d4aa73c9b331176d/7b055c9448320327-21/s540x810/73c1aaacc162a10e01fb1128a0da272dd24d909d.pnj"/>
+ <img height="175" width="425" src="https://64.media.tumblr.com/968707b35e3d63c8d4aa73c9b331176d/7b055c9448320327-21/s540x810/73c1aaacc162a10e01fb1128a0da272dd24d909d.pnj"/>
 </a>
 
  <p align="center">
@@ -66,7 +66,7 @@
    <a href="https://guns.lol/astrozgalaxy">
  <img height="75" width="75" src="https://media.discordapp.net/attachments/757933544734457951/1488380036376690729/purple_gunslol.png?ex=69cc916d&is=69cb3fed&hm=bee12ad9ad4ddd76524d5d6eea7e519fe7d65635f58c1904463dc94236d8175d&=&format=webp&quality=lossless"/>
 </a>
-   <a href="https://astrozgalaxy.atabook.org/">
+  <a href="https://astrozgalaxy.atabook.org/">
  <img height="75" width="75" src="https://media.discordapp.net/attachments/757933544734457951/1488380036678549695/purple_atabook.png?ex=69cc916d&is=69cb3fed&hm=938c3dcbd86a3d23108c4874fb2f5fa911c660c2c1ab713ca48f1eec77bc0102&=&format=webp&quality=lossless"/>
 </a>
   <p align="center">
